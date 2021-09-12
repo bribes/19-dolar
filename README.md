@@ -1,2 +1,2 @@
 # 19-dolar
-<div class="tenor-gif-embed" data-postid="20718269" data-share-method="host" data-aspect-ratio="0.81875" data-width="100%"><a href="https://tenor.com/view/doug-walker-yelling-at-computer-no-more-fortnite-me-when-no-more-fortnite-no-more19dollar-card-gif-20718269">Doug Walker Yelling At Computer GIF</a>from <a href="https://tenor.com/search/doug+walker-gifs">Doug Walker GIFs</a></div> <script type="text/javascript" async src="https://tenor.com/embed.js"></script>
+![https://media.tenor.co/videos/612ee78b482f984bc338a872634553da/mp4](fornite)
