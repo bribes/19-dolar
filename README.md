@@ -1,2 +1,2 @@
 # 19-dolar
-![https://media.tenor.co/videos/612ee78b482f984bc338a872634553da/mp4](https://media.tenor.co/videos/612ee78b482f984bc338a872634553da/mp4)
+[![ezgif.com-video-to-gifa1b364cd42ccc281.gif](https://s9.gifyu.com/images/ezgif.com-video-to-gifa1b364cd42ccc281.gif)](https://gifyu.com/image/J46W)
